@@ -1,0 +1,1 @@
+# Dosyadan-not-hesaplama-Project
